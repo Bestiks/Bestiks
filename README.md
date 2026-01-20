@@ -37,8 +37,7 @@
 
 ### 📫 Как со мной связаться:
 
-- **Email**: bestiksvarn@gmail.com
-- **Telegram**: @BestiksSSS
+- **Telegram**: @Bestiksone
 
 ---
 
